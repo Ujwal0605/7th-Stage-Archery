@@ -1,1 +1,1 @@
-# 7th-Stage-Archery
+# EPIC-ARCHERY-STAGE-7-2
